@@ -11,4 +11,4 @@ Abel Ngumbau
    -  https://ngumbauabel-lab.github.io/photography-project/
    ## copyright and license information
    - ©2026 Abel Ngumbau. All rights reserved
-NOTE: all images and trademarks related to F1 teams are the property of their respective owners and are used here for educational/ illustrative purposes.
+NOTE: all images and trademarks related to daily life activity are the property of their respective owners and are used here for educational/ illustrative purposes.
